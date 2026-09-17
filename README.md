@@ -1,5 +1,6 @@
+The world is not threatened by bad people, but rather by those who allow evil.
 
-## Olá, sou o Bwa!
+
 
 </div>
   <img align="right" alt="bwa versão anime - Gif" height="180" style="border-radius:50px;" src="https://media.discordapp.net/attachments/1439765012754202735/1448380102550487140/ab90df37f479fbcdb9f496a08a8fb6e9.gif?ex=693b0c96&is=6939bb16&hm=eb10eb8e96fc776ed07aeb0d826b3568ed67f700371c1d5ce7ec7aa7e613748b&=">
